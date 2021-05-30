@@ -14,7 +14,8 @@
 ### La mode en mode recyclage
 
 * [https://www.fondationorange.com/La-mode-en-mode-recyclage?lang=fr](Fablab sonatel)
-* 
+* [https://www.momtastic.com/webecoist/2011/11/28/trash-to-fashion-13-chic-crazy-upcycled-collections/](Trash to fashion)
+
 ### Mode et Afrique
 
 * La [https://www.miakora.com/fabric-map-of-africa](carte des tissus africains)
